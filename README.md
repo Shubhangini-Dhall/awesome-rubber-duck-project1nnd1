@@ -1,1 +1,0 @@
-# awesome-rubber-duck-project1nnd1
